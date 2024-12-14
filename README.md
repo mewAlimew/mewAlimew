@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Ali Heydari
+- 🌱 I’m currently working on my new idea in case of data and starting it up to a business
+- 💞️ I’m looking to collaborate on my new project with hungry and intense people
+- 📫 You can text me on all social media's with the handle @meAliHeydari.
